@@ -1,0 +1,1 @@
+# 2.5-Funciones-trascendentes-Trigonometricas-Logaritmicas-y-Exponenciales
